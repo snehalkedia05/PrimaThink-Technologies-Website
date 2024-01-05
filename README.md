@@ -1,1 +1,1 @@
-# PrimaThink Technologoies Website
+# PrimaThink Technologies Website
